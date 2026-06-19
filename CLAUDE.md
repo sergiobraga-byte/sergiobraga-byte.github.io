@@ -7,6 +7,6 @@ Time
 Dr(a) Camila Fernandes (Fundadora e Dona, Esteticista, Massoterapeuta)
 Dr(a) Daiana Maia (Biomedica)
 Dr(a) Celia Regina (Esteticista, Massoterapeuta)
-Ingridy (Recepcionista)
-Julia Coelho (Recepcionista)
+Ingryd (Recepcionista)
+Giulia Coelho (Recepcionista)
 
